@@ -1,1 +1,0 @@
-# daimiislamijantri.github.io
